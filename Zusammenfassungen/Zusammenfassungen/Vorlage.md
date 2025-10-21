@@ -1,1 +1,0 @@
-Hallo ChatGPT, das sind meine Lernziele für die nächste Prüfung. Erstelle mir eine perfekte Zusammenfassung mit den jeweiligen Lösungen für das jeweilige Lernziel. Bevor du dass Lernziel fettgedruckt aufschreibst, sollst du einen grünen, orangen oder roten Emoji vorne hintun damit ich einschätzen kann was schwierig oder einfach ist.
